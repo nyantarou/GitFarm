@@ -1,9 +1,1 @@
-aa
-aa
-nyan
-aa
-aa
-aaaa
-sa
-zaa
-a
+光足りてる？
